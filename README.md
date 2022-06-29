@@ -3,11 +3,8 @@
 
 GRUPO
 
-Santiago 
-Paula
 Pierre :grinning:
-Victoria
+Santiago:smile: 
 Paula :blush:
-Pierre
 Victoria :smile:
 
