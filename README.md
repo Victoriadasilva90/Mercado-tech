@@ -7,3 +7,6 @@ Santiago
 Paula
 Pierre :grinning:
 Victoria
+Pierre
+Victoria :smile:
+
