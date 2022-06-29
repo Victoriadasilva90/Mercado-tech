@@ -3,7 +3,7 @@
 
 GRUPO
 
-Santiago 
+Santiago:smile: 
 Paula :blush:
 Pierre
 Victoria :smile:
